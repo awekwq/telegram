@@ -9,6 +9,11 @@
 - 国外🌍🌍：欢迎大家在 https://awekwq.github.io/telegram/ 搜索自己喜欢的群组
 - 🚩AIGC导航地址🚩：http://101.133.229.203/
 
+
+
+##   🔞广州深圳资源公开搜索🔥:[https://t.me/gspczy](https://t.me/gspczy)
+## <p>推荐</p> 🔞高中叛逆少女白虎黑人:[https://t.me/gaozhongbaihushaonv](https://t.me/gaozhongbaihushaonv)
+
 18+
 =============
 
