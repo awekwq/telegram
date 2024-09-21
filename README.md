@@ -12,8 +12,8 @@
 # 推荐
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
-| 🔞广州深圳资源公开搜索🔥      | [https://t.me/gspczy](https://t.me/gspczy)     | 🔞广州深圳资源公开搜索  |
-| 🔞高中叛逆少女白虎黑人      | [[https://t.me/gaozhongbaihushaonv](https://t.me/gaozhongbaihushaonv)    |  🔞高中叛逆少女白虎黑人  |
+| 🔞广州深圳资源公开搜索🔥      | [https://t.me/gspczy](https://t.me/gspczy)   3192 位成员  | 🔞广州深圳资源公开搜索  |
+| 🔞高中叛逆少女白虎黑人      | [[https://t.me/gaozhongbaihushaonv](https://t.me/gaozhongbaihushaonv)   23192 位成员 |  🔞高中叛逆少女白虎黑人  |
 
 18+
 =============
