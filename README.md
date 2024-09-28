@@ -15,6 +15,34 @@
 - 国外🌍🌍：欢迎大家在 https://awekwq.github.io/telegram/ 搜索自己喜欢的群组
 - 🚩AIGC导航地址🚩：http://101.133.229.203/
 
+### 推荐
+*   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
+*   🔞广州深圳资源公开搜索🔥: [https://t.me/gspczy](https://t.me/gspczy)
+*   🔞高中叛逆少女白虎黑人 : [https://t.me/gaozhongbaihushaonv](https://t.me/gaozhongbaihushaonv) 
+*   🔞眼镜反差婊❤️：[https://t.me/+33RCsJjiLmhiMzg1](https://t.me/+33RCsJjiLmhiMzg1)
+*   🔞推特|女菩萨❤️：[https://t.me/+Kt9f9FjPl3oyYTE1](https://t.me/+Kt9f9FjPl3oyYTE1)
+*   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
+*   Telegram 🔥全网吃瓜|第一吃瓜🍉:[https://t.me/diyichigua](https://t.me/diyichigua)
+*   Telegram 🔥吃瓜吧|吃瓜中心🍉:[https://t.me/chiguabar](https://t.me/chiguabar)
+*   Telegram 🤖转发小助手🤖:[https://t.me/tgzfxzsbot](https://t.me/tgzfxzsbot)【破解私密频道无法保存转发下载等功能，涨粉神器】
+*   Telegram 🔞反差资源搜索🔥:[https://t.me/sousuofc](https://t.me/sousuofc)
+*   Telegram ❤️色色搜索🔥NSFW:[https://t.me/sesou20w](https://t.me/sesou20w)
+*   Telegram ❤️色片搜索🔥Pron:[https://t.me/sepiansousuo](https://t.me/sesesousuoba)
+*   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
+*   Telegram 🥷暗网搜索🔍:[https://t.me/anwangbots](https://t.me/anwangbots)
+*   Telegram 🔥搜片神器🎥:[https://t.me/soupiantg](https://t.me/soupiantg)
+*   Telegram 🔥全网吃瓜黑料搜索群组🔥:[https://t.me/sousuo91p](https://t.me/sousuo91p)
+*   Telegram 🔥哆啦A梦软件App|VPN破解📱:[https://t.me/dlamapp](https://t.me/dlamapp)
+*   Telegram 🔥曝光集中营🔥:[https://t.me/bgjzy](https://t.me/bgjzy)
+*   Telegram 🔥5U供需发布🔥:[https://t.me/gxfb5u](https://t.me/gxfb5u)
+*   Telegram 🔥客户端中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
+*   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/sosoo?start=a_1951804542)
+*   Telegram 🔥最强搜索机器人JiSou🤖:[t.me/jisou](https://t.me/jisou2bot?start=a_1951804542)
+*   Telegram 🔥最强搜索机器人JiSo🤖:[https://t.me/jiso](https://t.me/jiso?start=a_1951804542)
+*   Telegram 🔥i快搜机器人🤖:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=7352210715)
+*   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_1951804542)
+*   Telegram 🔥神马搜索🤖:[https://t.me/smss](https://t.me/smss?start=spread_1951804542)
+*   🔥 赏颜阁 🔥全网最漂亮的妹子聚集地 :[https://t.me/dysyg](https://t.me/dysyg)
 
 18+
 =============
