@@ -47,7 +47,7 @@
 18+
 =============
 
-**# 🖼ANIME Wallpaper**
+**# 🖼ANIME Wallpaper***
 
 - 链接: https://t.me/acgwallpaper - 3192 位成员
   壁纸 Wallpaper每天更新一次 Update daily其他频道 Other channels：@bravo_hentai@nskjdnfnfnj@classical_album反馈 Feedback：请直接评论 Comment directly
